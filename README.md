@@ -1,5 +1,5 @@
 # ೃ⁀➷ Eri Here:
-˙⋆✮ Tech apprentice and aspiring developer<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
+˙⋆✮ Tech apprentice based in the UK<br>✧.* Aspiring engineer<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
 
 
 # ・❥・ Beep beep stack:
