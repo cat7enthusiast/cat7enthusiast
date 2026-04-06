@@ -1,5 +1,5 @@
 # ೃ⁀➷ Ri Here:
-˙⋆✮ Machine learning & Data Science Intern based in the UK<br>✧.* Working towards a Bsc (Hons) in Computer science with Artificial Intelligence<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
+˙⋆✮ Machine learning & Data Scienctist in the UK<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
 
 
 # ・❥・ Beep beep stack:
