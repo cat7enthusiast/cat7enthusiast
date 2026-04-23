@@ -1,5 +1,5 @@
 # ೃ⁀➷ Ri Here:
-˙⋆✮ Machine learning & Data Scienctist in the UK<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
+˙⋆✮ Machine learning & Data Scientist in the UK<br>⋆˚࿔ Specialisation in AI/ML/DL and optimisation!
 
 
 # ・❥・ Beep beep stack:
